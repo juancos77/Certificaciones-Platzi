@@ -1,2 +1,2 @@
 # Certificaciones-Platzi
-Algunas certificaciones obtenidas en Platzi de Juan Antonio Coscollola
+Algunas certificaciones obtenidas en Platzi de juancos77
